@@ -4,7 +4,7 @@
 
 The **SonyLIV Premium Mod APK** is a modified version of the popular streaming app, SonyLIV. Designed to give users access to a wide range of content, this modded APK unlocks all premium features without the need for a subscription. Enjoy ad-free streaming, exclusive movies, live sports, and top-notch TV shows directly from your Android device. Unlike the regular version, the MOD APK bypasses the usual subscription fees and login processes, offering a seamless, uninterrupted viewing experience.
 
-> # Download Here: 🖥️🖥️ https://heyapks.com/ 
+> # Download Here: 🖥️🖥️ https://heyapks.com/sonyliv.html
 ![ảnh 1](https://github.com/user-attachments/assets/4dd8ce78-e435-463c-b257-fee83250c07d)
 
 ## Features of SonyLIV Premium Mod APK
